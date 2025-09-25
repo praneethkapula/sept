@@ -1,1 +1,1 @@
-# sept
+chintalli pichidhi intlo
